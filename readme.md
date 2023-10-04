@@ -1,1 +1,1 @@
-ini adalah contoh text warna warni
+ini adalah contoh text warna warnii
